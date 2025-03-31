@@ -1,4 +1,4 @@
-## Hi there 👋
+## Czesc i czolem frytki z rosolem :D udaje ze to wlasnoreczny napis
 
 <!--
 **FastFrog83/Fastfrog83** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
